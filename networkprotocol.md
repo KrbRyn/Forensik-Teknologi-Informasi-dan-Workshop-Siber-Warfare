@@ -112,6 +112,6 @@ Alur sederhana Internet:
 
 ---
 
-✍️ Dibuat Oleh : Putra Rizki. F
+✍️ Dibuat Oleh : tri apriyanto
 
 Untuk dokumentasi belajar & riset..  
