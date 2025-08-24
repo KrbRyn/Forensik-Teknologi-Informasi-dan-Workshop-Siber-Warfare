@@ -44,3 +44,8 @@ Negara harus berusaha untuk melakukan atribusi yang akurat terhadap pelaku seran
 ---
 
 Dokumen ini dapat digunakan sebagai referensi dasar untuk memahami prinsip-prinsip dan hukum internasional terkait keamanan siber serta implikasinya dalam hubungan antarnegara dan perlindungan hak asasi manusia di era digital.
+
+kelompok :
+SEKA BEK ANDI
+SERTU MAR AGUNG
+KLK ISY TRI
